@@ -45,7 +45,7 @@ You may choose to do a bonus or extension. These are optional activities that wi
 
 ## Contact
 
-Author: Dorsey66@gmail.com
+Author: Dorsey664@gmail.com
 
 ## Acknowledgements
 
